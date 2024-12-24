@@ -49,9 +49,7 @@
 
 ## FlowChart
 
-![image](https://github.com/user-attachments/assets/e951641e-7434-4ea9-8dce-6f5a7d0b34fd)
-
-Link :https://miro.com/app/board/uXjVL6MqAIw=/
+Link :[https://miro.com/app/board/uXjVL6MqAIw=/](https://miro.com/welcomeonboard/NDZCSHhXdDhocC9GU3JvM1FsZlp2Tm1hUi9zU3pDWlhLT3BVQXZEZXIzc1lrZWdTYXdIYjBielNScWxpS2dkQU95Z3dBc1B6RkNsRTB4dXN0eUR6MmtLUG5sZXFYY014UmFLUU1nTzBSd2xJa3M4MU8yazZSY2dzT1hEUE44UjIhZQ==?share_link_id=120872289430)
 
 ## สมาชิก
 
